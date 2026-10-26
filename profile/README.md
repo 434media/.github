@@ -1,29 +1,31 @@
 # 434 MEDIA
 
-### Bold Stories. Proven Impact.
+434 MEDIA is a production studio that develops original IP and produces content, experiences, and platforms for brands.
 
-From brand campaigns to event production, we help the world's most innovative firms find their voice and amplify their impact through bold storytelling and experiences.
-
-📍 San Antonio, TX  ·  🌐 [434media.com](https://www.434media.com)
+[434media.com](https://www.434media.com) · [See the work](https://www.434media.com/work) · [Start a production](https://www.434media.com/contact)
 
 ---
 
-## What we do
+## The work
 
-We build brands from the ground up — not just market them. Our work spans five practices:
+### Original IP
 
-- **Brand & Culture** — Original IP and creator-led brands. Lifestyle, music, and identity work.
-- **Health & Bio Innovation** — Storytelling and media for the institutions, programs, and founders shaping the future of human health.
-- **Capital & Founders** — Content, brand, and event work for the venture firms and angel networks backing bold ideas across South Texas.
-- **Tech & Community** — Conferences, communities, and tools that grow the regional tech ecosystem and the people inside it.
-- **Media & Storytelling** — Bilingual, broadcast, and mission-driven media reaching audiences that legacy outlets miss.
+Media properties and original productions owned by 434 MEDIA and its partners.
 
-## Selected work
+Salute to Troops · TXMX Boxing · MilCityUSA · VemosVamos · AMPD Project · OVERDRIVE · Rise of a Champion (Co-presented with ICON TALKS) · Me & Michael (Vulture Films, in association with Purghart Productions and Pink + White)
 
-A few of the brands, programs, and communities we've partnered with:
+### Platforms for Brands
 
-**Methodist Healthcare Ministries** · **AIM Health R&D Summit** · **TXMX Boxing** · **Alamo Angels** · **DEVSA** · **VemosVamos** · **Women in Film & Television Texas**
+Integrated, multi-part programs or properties developed or produced for a client.
+
+¿Qué es SDOH? (VelocityTX, funded through Methodist Healthcare Ministries) · AIM Health R&D Summit (VelocityTX) · Alamo Angels · TechBloc Tech Day (TechBloc)
+
+### Productions for Brands
+
+Defined content or live-experience engagements produced for a client.
+
+Univision San Antonio — 70th Anniversary Concert · Nucleate Global Summit (Nucleate) · Mission Road Ministries — Fundraising · VelocityTX — SDOH Community Health Accelerator Demo Day (VelocityTX, funded through Methodist Healthcare Ministries) · Builders VC: 280 Earth, Amplifier Health, Ashbrook Technologies, Breaking, Checkerspot, Gradiant, Native Microbials, Navier, Pathos, Pie VAT, UbiQD
 
 ---
 
-*Actions speak louder. See the work → [434media.com/work](https://www.434media.com/work)*
+Actions.Speak.Louder
